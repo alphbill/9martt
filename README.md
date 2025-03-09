@@ -1,2 +1,1 @@
-# 9martt
-9 Mart Kutlu Olsun🎉
+# Tek Kral Benim.
